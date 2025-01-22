@@ -1,6 +1,7 @@
-# 💫 About Me:
-6th-sem student @IIIT Kota
-<br>Exploring Tech
+# Hello 👋, I am Akshat💫
+📚 6th-sem student @IIIT Kota 
+<br>🖥️ Exploring tech
+<br>✍️ Writing out my creativity
 
 
 ## 🌐 Socials:
