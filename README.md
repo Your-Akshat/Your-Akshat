@@ -1,7 +1,7 @@
 # Hello 👋, I am Akshat💫
-📚 6th-sem student @IIIT Kota 
+📚 7th-sem student @IIIT Kota 
 <br>🖥️ Exploring tech
-<br>✍️ Writing out my creativity
+<br>✍️ [Writing](https://www.instagram.com/poetic_akshat/) out my creativity
 
 
 ## 🌐 Socials:
