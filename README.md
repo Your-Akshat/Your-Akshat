@@ -1,7 +1,7 @@
 # Hello 👋, I am Akshat💫
-📚 8th-sem student @IIIT Kota 
+📚 IIIT Kota (batch of 2026)
 <br>🖥️ Exploring tech
-<br>✍️ [Writing](https://www.instagram.com/poetic_akshat/) out my creativity
+<br>👨‍💻 SE-1 @ Tennr (YC W'23)
 
 
 ## 🌐 Socials:
